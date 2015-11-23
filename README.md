@@ -1,1 +1,1 @@
-# gitskills
+i alerty set 
